@@ -1,1 +1,1 @@
-<img src="https://www.science.smith.edu/climatelit/wp-content/uploads/sites/97/2024/07/GettyImages-517357578-5c4a27edc9e77c0001ccf77d-Large.jpeg">
+<img src="https://images.nationalgeographic.org/image/upload/t_edhub_resource_key_image/v1638882458/EducationHub/photos/titanic-sinking.jpg">
